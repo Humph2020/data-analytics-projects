@@ -21,5 +21,5 @@ Stay tuned — I’ll be uploading full project work as I progress through my tr
 ---
 
 ## Let’s Connect
-- **Email:** (humpheryokechukwuezeh@gmail.com)
+- **Email:** humpheryokechukwuezeh@gmail.com
 
