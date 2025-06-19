@@ -20,7 +20,6 @@ Stay tuned — I’ll be uploading full project work as I progress through my tr
 
 ---
 
-## 🌍 Let’s Connect
-- **LinkedIn:** (Add your profile link)
+## Let’s Connect
 - **Email:** (Humpheryokechukwuezeh@gmail.com)
 
